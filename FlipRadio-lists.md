@@ -57,3 +57,4 @@
 | 硬核地探讨一下“中文被污染”这个话题 | --- | [view](https://www.podbean.com/media/share/dir-si9vv-1cbeedbe) |
 | 调查结果公布，游戏性别商品进步价值 | --- | [view](https://www.podbean.com/media/share/dir-p5x7v-1f9e3c4f) |
 | 梳理关于DEI的11个最基础视角 | --- | [view](https://www.podbean.com/media/share/dir-upmcj-20b6f721) |
+| DeepSeek大规模应用会如何改变公共舆论 | --- | [view](https://www.podbean.com/media/share/dir-krz2e-23b3c3aa) |
