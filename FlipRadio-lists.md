@@ -14,11 +14,22 @@
 | 19世纪初一抹法式忧郁（13） | --- | [view](https://www.podbean.com/media/share/dir-5jdp2-1a8168cf) |
 | 德式浪漫主义：从精神解放到nazi（14） | --- | [view](https://www.podbean.com/media/share/dir-66ij3-1ae51f2c) |
 | “肤浅”的浪漫主义：不被当真的艺术（15） | --- | [view](https://www.podbean.com/media/share/dir-vhws9-1b82f83c) |
+| 帝国与民族国家（16） | --- | [view](https://www.podbean.com/media/share/dir-6ga7b-1bbdd4e7) |
+| 1848革命的国族胜过自由（17） | --- | [view](https://www.podbean.com/media/share/dir-de6m3-1c3ba010) |
+| 法兰西共和回帝制，时人为何做此选择（18） | --- | [view](https://www.podbean.com/media/share/dir-y8p7d-1c917b2b) |
 | --- | --- | view |
 | --- | --- | view |
 | --- | --- | view |
 | --- | --- | view |
-
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
+| --- | --- | view |
 
 
 ### 兴趣阅读
