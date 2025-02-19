@@ -6,13 +6,13 @@
 
 | 名称 | 格式 |访问|
 | --- | --- | --- |
-| 作为19世纪方案的社会主义（24） | --- | [view](https://www.podbean.com/media/share/dir-xexwi-1eadc96e) |
+| 被动员的普通人（06） | 正文从2:50开始 | [view](https://www.podbean.com/media/share/dir-7h3mh-18c65af8) |
 | 一战：大转型后的大脱节（25） | --- | [view](https://www.podbean.com/media/share/dir-ybb7e-1ee785a2) |
 | 尼采：首先是一位19世纪哲学家（27） | --- | [view](https://www.podbean.com/media/share/dir-ejecg-1fad9a65) |
 | 作为整体风格的文化（29） | --- | [view](https://www.podbean.com/media/share/dir-u723c-20df8b47) |
 | 过度历史的热病（30） | --- | [view](https://www.podbean.com/media/share/dir-8e7bv-2100dca6) |
 
-#### 必要阅读！
+#### good 进阶阅读部分
 
 | 名称 | 格式 |访问|
 | --- | --- | --- |
@@ -26,13 +26,13 @@
 | 过度历史的热病（30） | --- | [view](https://www.podbean.com/media/share/dir-8e7bv-2100dca6) |
 | 教育、叔本华与“我”（31） | --- | [view](https://www.podbean.com/media/share/dir-ntbqi-219d5b83) |
 
-#### 完整阅读版本
+#### great！ 完整阅读版本
 
 还是推荐更完整的了解十九世纪。如果你时间充裕请阅读，可以边做其他不太需要思考的事边听。
 
 | 名称 | 格式 |访问|
 | --- | --- | --- |
-| 被动员的普通人（06） | 正文从2:50开始 因为有对前文总结所以直接从此处开始 | [view](https://www.podbean.com/media/share/dir-7h3mh-18c65af8) |
+| 被动员的普通人（06） | 正文从2:50开始 | [view](https://www.podbean.com/media/share/dir-7h3mh-18c65af8) |
 | 大制度与旧革命（07） | --- | [view](https://www.podbean.com/media/share/dir-frc5a-190da5b4) |
 | 法国革命的自由与美国革命的自由（08） | --- | [view](https://www.podbean.com/media/share/dir-e6mfr-192de814) |
 | 拿破仑与梅特涅：欧洲瓦解与重塑（09） | --- | [view](https://www.podbean.com/media/share/dir-2zuna-197b98ba) |
