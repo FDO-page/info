@@ -27,9 +27,10 @@
 | 一战：大转型后的大脱节（25） | --- | [view](https://www.podbean.com/media/share/dir-ybb7e-1ee785a2) |
 | 一战：烧尽19世纪的野火（26） | --- | [view](https://www.podbean.com/media/share/dir-zvy9y-1f59ee16) |
 | 尼采：首先是一位19世纪哲学家（27） | --- | [view](https://www.podbean.com/media/share/dir-ejecg-1fad9a65) |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
+| 讨厌尼采，但对他的哲学感兴趣（28） | --- | [view](https://www.podbean.com/ew/dir-n79hi-2023759a) |
+| 作为整体风格的文化（29） | --- | [view](https://www.podbean.com/media/share/dir-u723c-20df8b47) |
+| 过度历史的热病（30） | --- | [view](https://www.podbean.com/media/share/dir-8e7bv-2100dca6) |
+| 教育、叔本华与“我”（31） | --- | [view](https://www.podbean.com/media/share/dir-ntbqi-219d5b83) |
 
 
 ### 翻电Special兴趣阅读
@@ -38,4 +39,7 @@
 | --- | --- | --- |
 | 婚姻制度和私有制是永恒的吗？面对AI和星际殖民，我们是否更有可能设想全然不同的社会？ | --- | [view](https://www.podbean.com/media/share/dir-gjqba-1964bd7c) |
 | 硬核地探讨一下“中文被污染”这个话题 | --- | [view](https://www.podbean.com/media/share/dir-si9vv-1cbeedbe) |
+| 调查结果公布，游戏性别商品进步价值 | --- | [view](https://www.podbean.com/media/share/dir-p5x7v-1f9e3c4f) |
+| --- | --- | view |
+| --- | --- | view |
 | --- | --- | view |
