@@ -1,6 +1,17 @@
 # FlipRadio-lists 翻转电台 系列汇总
 
 ### 尼采系列
+
+#### Necessary Reading 必要阅读部分
+
+| 名称 | 格式 |访问|
+| --- | --- | --- |
+| 作为19世纪方案的社会主义（24） | --- | [view](https://www.podbean.com/media/share/dir-xexwi-1eadc96e) |
+| 一战：大转型后的大脱节（25） | --- | [view](https://www.podbean.com/media/share/dir-ybb7e-1ee785a2) |
+| 尼采：首先是一位19世纪哲学家（27） | --- | [view](https://www.podbean.com/media/share/dir-ejecg-1fad9a65) |
+| 作为整体风格的文化（29） | --- | [view](https://www.podbean.com/media/share/dir-u723c-20df8b47) |
+| 过度历史的热病（30） | --- | [view](https://www.podbean.com/media/share/dir-8e7bv-2100dca6) |
+
 #### 必要阅读！
 
 | 名称 | 格式 |访问|
