@@ -17,25 +17,25 @@
 | 帝国与民族国家（16） | --- | [view](https://www.podbean.com/media/share/dir-6ga7b-1bbdd4e7) |
 | 1848革命的国族胜过自由（17） | --- | [view](https://www.podbean.com/media/share/dir-de6m3-1c3ba010) |
 | 法兰西共和回帝制，时人为何做此选择（18） | --- | [view](https://www.podbean.com/media/share/dir-y8p7d-1c917b2b) |
+| 德意志：19世纪集大成（19） | --- | [view](https://www.podbean.com/media/share/dir-we6ep-1ce5d5d1) |
+| 俾斯麦：一个全新物种（20） | --- | [view](https://www.podbean.com/media/share/dir-4auqa-1d179e11) |
+| 面对极端现实主义（21） | --- | [view](https://www.podbean.com/media/share/dir-7fafr-1d5d3454) |
+| 俾斯麦主义内政（22） | --- | [view](https://www.podbean.com/media/share/dir-9pqpa-1e209b0c) |
 | --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
-| --- | --- | view |
+| 推向政治极端主义（23） | --- | [view](https://www.podbean.com/media/share/dir-wpgpm-1e3cc786) |
+| 作为19世纪方案的社会主义（24） | --- | [view](https://www.podbean.com/media/share/dir-xexwi-1eadc96e) |
+| 一战：大转型后的大脱节（25） | --- | [view](https://www.podbean.com/media/share/dir-ybb7e-1ee785a2) |
+| 一战：烧尽19世纪的野火（26） | --- | [view](https://www.podbean.com/media/share/dir-zvy9y-1f59ee16) |
+| 尼采：首先是一位19世纪哲学家（27） | --- | [view](https://www.podbean.com/media/share/dir-ejecg-1fad9a65) |
 | --- | --- | view |
 | --- | --- | view |
 | --- | --- | view |
 
 
-### 兴趣阅读
+### 翻电Special兴趣阅读
 
 | 名称 | 格式 |访问|
 | --- | --- | --- |
-| 翻电Special 婚姻制度和私有制是永恒的吗？面对AI和星际殖民，我们是否更有可能设想全然不同的社会？ | --- | [view](https://www.podbean.com/media/share/dir-gjqba-1964bd7c) |
-| --- | --- | view |
+| 婚姻制度和私有制是永恒的吗？面对AI和星际殖民，我们是否更有可能设想全然不同的社会？ | --- | [view](https://www.podbean.com/media/share/dir-gjqba-1964bd7c) |
+| 硬核地探讨一下“中文被污染”这个话题 | --- | [view](https://www.podbean.com/media/share/dir-si9vv-1cbeedbe) |
 | --- | --- | view |
