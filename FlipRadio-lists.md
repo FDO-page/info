@@ -16,6 +16,7 @@
 
 | 名称 | 格式 |访问|
 | --- | --- | --- |
+| 被动员的普通人（06） | 正文从2:50开始 | [view](https://www.podbean.com/media/share/dir-7h3mh-18c65af8) |
 | 推向政治极端主义（23） | --- | [view](https://www.podbean.com/media/share/dir-wpgpm-1e3cc786) |
 | 作为19世纪方案的社会主义（24） | --- | [view](https://www.podbean.com/media/share/dir-xexwi-1eadc96e) |
 | 一战：大转型后的大脱节（25） | --- | [view](https://www.podbean.com/media/share/dir-ybb7e-1ee785a2) |
